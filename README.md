@@ -1,6 +1,6 @@
 **Martin J. Deen**
 
-mjdeen@gmail.com **I** +1.404.353.4670 **I** linkedin.com/in/martindeen
+https://linkedin.com/in/martindeen
 **I** Atlanta, GA
 
 **Senior Solutions Engineer | Technical Business Development**
